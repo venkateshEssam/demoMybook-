@@ -1,1 +1,1 @@
-# Chapter 2 blue chapter
+# Chapter 2 - The Purple Chapter
